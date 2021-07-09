@@ -16,7 +16,7 @@
 
 - 💬 Ask me about **My Work, Nature , available for work or etc.**
 
-- 📫 How to reach me **himu2414@gmail.com | +8801647269879**
+- 📫 How to reach me **himu2414@gmail.com | Phone Number : +8801647269879**
 
 - ⚡ Fun fact **I can adjust in any situation or platform and adopt the environment and it's nature quickly.**
 
